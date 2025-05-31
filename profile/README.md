@@ -1,6 +1,20 @@
 
 
 
+<div align="center">
+
+<a href="https://tirangainvitecode.in/tiranga" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.imageupload.app/f289c3a2ab6097e18487.png" alt="Tiranga Game Register" width="100%" height="auto;" style="margin: 15px;" />
+</a>
+
+<a href="https://tirangainvitecode.in/tiranga" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.imageupload.app/a819ac2b147cf0a80f85.png" alt="Tiranga Game Login" width="100%" height="auto;" style="margin: 15px;" />
+</a>
+  
+
+
+</div>
+
 
 
 # 🎯 Unlock Rewards with Tiranga Game Invite Code 2757419478643 and Start Playing Smart
