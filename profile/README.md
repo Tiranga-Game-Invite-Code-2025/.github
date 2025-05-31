@@ -1,3 +1,8 @@
+
+
+
+
+
 # 🎯 Unlock Rewards with Tiranga Game Invite Code 2757419478643 and Start Playing Smart
 
 Looking to jumpstart your journey in Tiranga? You’re in the right place. Whether you’re brand new or just haven’t explored the referral system yet, using an invite code like **2757419478643** is one of the easiest ways to score early rewards.
